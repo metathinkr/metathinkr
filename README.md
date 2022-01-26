@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @metathinkr
 - 👀 I’m interested in thinking beyond for good
-- 🌱 I’m currently learning art of reflection an the laws of nature
+- 🌱 I’m currently learning art of reflection and the laws of nature
 - 💞️ I’m looking to collaborate on anything which helps in creating, distributing and curating beneficial knowledge
 - 📫 This is how to reach me ...
-
+https://www.twitter.com/MetaThinkr
 https://www.facebook.com/metathinkr
 https://www.instagram.com/metathinkr
 https://www.quora.com/profile/Meta-Thinkr
